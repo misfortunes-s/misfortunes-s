@@ -19,7 +19,7 @@
 
                 
  <p align="center">︵　⑅ taken by fawny ◣ ◡ ◢  ⁀
-<p align="center"><img src="https://github.com/user-attachments/assets/596116ba-bdb1-417e-81d2-9fbe495c7240">
+<p align="center"><img src="https://github.com/user-attachments/assets/8e21ecf2-5ae6-4db0-a684-20ff93a4df57">
 
    
 <p align="center"><img src="https://github.com/user-attachments/assets/1b9f0393-2636-4a6b-8fc5-42a966dcf742"> 
