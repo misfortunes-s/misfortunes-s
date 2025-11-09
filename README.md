@@ -11,9 +11,9 @@
 
 <p align="center"><img src="https://github.com/user-attachments/assets/81b2af72-6576-4d0c-885d-7e3952159ba6"> . 
 
- ![1214717639352520734](https://github.com/user-attachments/assets/123ee76c-4635-4d54-9242-6ddf7328f7cd)
+<p align="center"><img src="https://github.com/user-attachments/assets/123ee76c-4635-4d54-9242-6ddf7328f7cd">
 
-![1114331297364578366](https://github.com/user-attachments/assets/ecddf6bc-0ff2-4ad7-bd90-d4c98b401cdb)
+<p align="center"><img src="https://github.com/user-attachments/assets/ecddf6bc-0ff2-4ad7-bd90-d4c98b401cdb">
 
 
 
