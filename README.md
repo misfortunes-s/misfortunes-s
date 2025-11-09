@@ -9,7 +9,7 @@
  <p align="center">︵　salt 𓈒 pire 𓈒 cleetus
                 
 
-<p align="center"><img src="https://github.com/user-attachments/assets/81b2af72-6576-4d0c-885d-7e3952159ba6"> . ![1214717639352520734](https://github.com/user-attachments/assets/3c2fb81b-d1d6-4fc9-a33d-467d5103a7f7) . ![1114331297364578366](https://github.com/user-attachments/assets/032328ed-7a7a-4962-9550-cfcfcb593125)
+<p align="center"><img src="https://github.com/user-attachments/assets/81b2af72-6576-4d0c-885d-7e3952159ba6"> . <img src="https://github.com/user-attachments/assets/3c2fb81b-d1d6-4fc9-a33d-467d5103a7f"> . <img src="https://github.com/user-attachments/assets/032328ed-7a7a-4962-9550-cfcfcb59312">
 
 
 
