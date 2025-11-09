@@ -14,7 +14,7 @@
 
 
                 
- <p align="center"><sup> <ins></ins> </sup>︵　⑅ taken by fawny</ins> </sup>  <img src="https://github.com/user-attachments/assets/98be0e34-703e-4820-a660-ec8043809629">
+ <p align="center"><sup> <ins></ins> </sup>︵　⑅ taken by fawny</ins> </sup>
 
 
 
