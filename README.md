@@ -5,4 +5,4 @@
  
  ︵　salt !.                pan / bi / bigender   ︵　⑅ 
 
-https://ph.pinterest.com/pin/76631631198144571/
+![download](https://github.com/user-attachments/assets/1b9f0393-2636-4a6b-8fc5-42a966dcf742)
