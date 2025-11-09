@@ -14,7 +14,7 @@
 
 
                 
- <p align="center">︵　⑅ taken by fawny ◣ ◡ ◢  <img src="https://github.com/user-attachments/assets/a805a2ef-2eab-4f54-aab7-c9a44fc56c5c">
+ <p align="center">︵　⑅ taken by fawny ◣ ◡ ◢  <img src="https://github.com/user-attachments/assets/98be0e34-703e-4820-a660-ec8043809629">
 
 
 
