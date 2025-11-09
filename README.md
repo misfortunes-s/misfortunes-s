@@ -19,7 +19,7 @@
 
 
    
-<p align="center"><img width="1280" height="221" alt="lchwah" src="https://github.com/user-attachments/assets/d504a6e0-e8f9-4cb7-ac75-cda3bb9c5d5e">
+<p align="center"><img src="https://github.com/user-attachments/assets/c3ac410d-66fa-4cce-8a54-8d74e63d4e9c">
 
 
 
