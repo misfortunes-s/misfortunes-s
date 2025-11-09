@@ -1,11 +1,11 @@
 <div align"center">
  
- ![images](https://github.com/user-attachments/assets/2d0880df-cd15-474a-b910-8967aaad4ed7)
+               ![images](https://github.com/user-attachments/assets/2d0880df-cd15-474a-b910-8967aaad4ed7)
 
 
-   ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
+               ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
  
-   ︵　salt 𓈒 pire 𓈒 cleetus
+          ︵　salt 𓈒 pire 𓈒 cleetus
                 
                 pan / bi / bigender   ︵　⑅ taken by fawny ◣ ◡ ◢  ⁀
    
