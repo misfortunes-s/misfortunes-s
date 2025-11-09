@@ -14,7 +14,7 @@
 
 
                 
- <p align="center"><sup> <ins></ins> </sup>︵　⑅ taken by fawny</ins> </sup>
+ <p align="center"><sup> <ins>︵　⑅ taken by fawny</ins> </sup>
 
 
 
