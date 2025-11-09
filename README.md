@@ -3,12 +3,13 @@
   ![images](https://github.com/user-attachments/assets/2d0880df-cd15-474a-b910-8967aaad4ed7)
 
 
-  ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
+  ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿![IMG-5040](https://github.com/user-attachments/assets/6fc777f2-69c8-47c4-aa7d-b50a97a7ffef)
+
  
           ︵　salt 𓈒 pire 𓈒 cleetus
                 
  ![1214711363881144370](https://github.com/user-attachments/assets/c605e749-bfc3-425e-b0f3-7b62b1342a80)
- / ![1217249256776138902](https://github.com/user-attachments/assets/473f6493-a1bb-4f47-9ea7-4d38dda73e2b) /
+ 𓈒 ![1217249256776138902](https://github.com/user-attachments/assets/473f6493-a1bb-4f47-9ea7-4d38dda73e2b) 𓈒
  ![1114331297364578366](https://github.com/user-attachments/assets/9bf6c4ed-429b-43ab-9ad9-a16848adbade)
 
                 
