@@ -8,7 +8,7 @@
  
  <p align="center">︵　salt 𓈒 pire 𓈒 cleetus
                 
-  <p align="center"><img src="[1214711363881144370](https://github.com/user-attachments/assets/c605e749-bfc3-425e-b0f3-7b62b1342a80>"
+<p align="center"><img src="[1214711363881144370](https://github.com/user-attachments/assets/c605e749-bfc3-425e-b0f3-7b62b1342a80>"
 
 
                 
