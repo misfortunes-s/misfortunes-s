@@ -3,7 +3,7 @@
 <p align="center"><img src="https://github.com/user-attachments/assets/317d2ddb-a701-4006-bb63-d26dd2be2100"width="500" height="1000">
 
 
- <p align="center">‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿<p align="center"><img src="https://github.com/user-attachments/assets/6fc777f2-69c8-47c4-aa7d-b50a97a7ffef">
+ <p align="center">‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿<p align="center"><img src="https://github.com/user-attachments/assets/6fc777f2-69c8-47c4-aa7d-b50a97a7ffef">
 
  
  <p align="center"><sup> <ins>︵　salt / pire / cleetus</ins> </sup>
