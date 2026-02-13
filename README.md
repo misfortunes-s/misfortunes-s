@@ -1,4 +1,4 @@
-<img width="640" height="213" alt="Tumblr-l-344076380686472" src="https://github.com/user-attachments/assets/980f1c6e-999a-45b6-9bbb-b663146a1e49" />
+<p align="center"><img width="640" height="213" alt="Tumblr-l-344076380686472" src="https://github.com/user-attachments/assets/980f1c6e-999a-45b6-9bbb-b663146a1e49" />
 <p align="center"><img src="https://github.com/user-attachments/assets/f5b2ae61-48bd-4ad7-a759-9ad6fc01be16"width="1000" /><p align="center">
 <p align="center">‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿<p align="center"><img src="https://github.com/user-attachments/assets/6fc777f2-69c8-47c4-aa7d-b50a97a7ffef">
 
