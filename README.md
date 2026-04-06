@@ -1,5 +1,5 @@
 <p align="center"><img src="https://github.com/user-attachments/assets/e406fed7-4e4c-417b-88fa-936721e87d1d"width="600" /><p align="center">
-<p align="center">‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿<p align="center"><img src="https://github.com/user-attachments/assets/6fc777f2-69c8-47c4-aa7d-b50a97a7ffef">
+<img src="https://github.com/user-attachments/assets/6fc777f2-69c8-47c4-aa7d-b50a97a7ffef">
 
  
  <p align="center"><sup> <ins>︵　salt / pire / jesper</ins> </sup>
