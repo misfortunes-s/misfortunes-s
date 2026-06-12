@@ -74,8 +74,7 @@
 
 
 
-<p align="center"><img src="https://github.com/user-attachments/assets/687b72e2-3169-46ca-ad5d-53d5efbbacf0"> <img src="https://github.com/user-attachments/assets/0a56dc0d-98f6-4cf1-97ee-c547f3d88622"> <img width="99" height="56" alt="9283b229843eb63d50b62771b8fc61a1081ac155-pnj" src="https://github.com/user-attachments/assets/95596e18-ed2a-47d0-9ea4-e3ff3b3ee60f" />
+<p align="center"><img src="<img width="112" height="112" alt="7a1e275b-28e6-48a2-bc63-56152e008046" src="https://github.com/user-attachments/assets/95fe8064-cee6-4c02-af4c-dbbe731ae2f9"> <img width="99" height="56" alt="9283b229843eb63d50b62771b8fc61a1081ac155-pnj" src="https://github.com/user-attachments/assets/95596e18-ed2a-47d0-9ea4-e3ff3b3ee60f" />
 
 
-<p align="center">https://saltito.straw.page/
 
