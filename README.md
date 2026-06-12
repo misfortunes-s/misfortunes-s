@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?misfortunes-s=your-github-username&color=006994)
 <p align="center"><img src="https://github.com/user-attachments/assets/f2e53610-5872-4e19-af2f-eafa07457de4""width="10000"/><p align="center">
 <img src="https://github.com/user-attachments/assets/b3c7dec5-2532-4b76-8829-d8cdda2df11e">
 
