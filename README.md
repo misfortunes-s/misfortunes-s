@@ -4,13 +4,19 @@
 <img src="https://github.com/user-attachments/assets/b3c7dec5-2532-4b76-8829-d8cdda2df11e">
 
  
+ 
  <p align="center"><sup> <ins>︵　salt / pire / kuneho</ins> </sup>
                 
+ 
+ 
  <p align="center"><img src="https://github.com/user-attachments/assets/81b2af72-6576-4d0c-885d-7e3952159ba6"> . <img src="https://github.com/user-attachments/assets/123ee76c-4635-4d54-9242-6ddf7328f7cd"> . <img src="https://github.com/user-attachments/assets/ecddf6bc-0ff2-4ad7-bd90-d4c98b401cdb">
 
                 
 
+
+ 
  <p align="center"><sup> <ins>︵　⑅ taken by fawny (^///^)</ins> </sup>
+
 
 
 
