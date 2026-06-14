@@ -15,7 +15,9 @@
 
 
  
- <p align="center"><sup> <ins>︵　⑅ taken by fawny (^///^)</ins> </sup>
+<p align="center">
+  <a href="[https://3ugene0ttinger.straw.page/]">sp</a>
+</p>
 
 
 
