@@ -16,7 +16,7 @@
 
  
 <p align="center">
-  <a href="https://3ugene0ttinger.straw.page">strawpage</a> .   <a href="https://rentry.co/saltzriley">rentry</a>
+  <a href="https://3ugene0ttinger.straw.page">strawpage</a> .   <a href="https://rentry.co/saltsriley">rentry</a>
 </p>
 
 
