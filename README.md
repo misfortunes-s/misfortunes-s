@@ -5,6 +5,8 @@
 <img src="https://github.com/user-attachments/assets/5d820246-c07d-4e85-b9ef-4c14ceee8161" width="100"/>
 
  
+$${\color{#710a3f}⭑}$$
+
  
  <p align="center"> $${\color{#710a3f}salt / \color{#f7ce9b}kuneho / \color{#31041d}pire}$$
                 
