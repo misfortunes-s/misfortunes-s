@@ -23,7 +23,7 @@
 $${\color{#710a3f}⭑}$$
 
 
-$${\color{#710a3f}"You afra \color{#f7ce9b}id of t \color{#31041d} he dark?"}$$
+$${\color{#710a3f}"You \space afra \color{#f7ce9b}id \space of \space t \color{#31041d} he \space dark?"}$$
 
 $${\color{#31041d}⭑}$$
 
