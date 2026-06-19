@@ -6,7 +6,7 @@
 
  
  
- <p align="center"> $${\color{#710a3f}salt / \color{#f7ce9b}kuneho / \color{#0e000a}pire}$$
+ <p align="center"> $${\color{#710a3f}salt / \color{#f7ce9b}kuneho / \color{#31041d}pire}$$
                 
  
  
@@ -16,10 +16,10 @@
 
  
 <p align="center">
-  <a href="https://3ugene0ttinger.straw.page">strawpage</a>  $${\color{#710a3f}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#f7ce9b}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#0e000a}⭑}$$ <a href="https://pronouns.cc/@misfortunes-s">prns</a>
+  <a href="https://3ugene0ttinger.straw.page">strawpage</a>  $${\color{#710a3f}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#f7ce9b}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#31041d}⭑}$$ <a href="https://pronouns.cc/@misfortunes-s">prns</a>
 </p>
 
-$${\color{#710a3f}"You afrai\color{#f7ce9b}d of t\color{#0e000a}he dark?"}$$
+$${\color{#710a3f}"You afrai\color{#f7ce9b}d of t\color{#31041d}he dark?"}$$
 
 <p align="center"><img src="https://github.com/user-attachments/assets/f930487d-6f7b-4267-b55f-0d6ffa2c71e3" width="900"/><p align="center"> 
 
