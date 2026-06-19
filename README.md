@@ -2,7 +2,7 @@
 
  ㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=misfortunes-s&label=Simon+Riley&color=710a3f)
 <p align="center"><img src="https://github.com/user-attachments/assets/d7f6cceb-99b3-4596-a2a2-9738177f99a3" width="500"/><p align="center">
-<img src="https://github.com/user-attachments/assets/8974a72c-8583-4a9c-976b-68d36e4c6b5a">
+<p align="center"><img src="https://github.com/user-attachments/assets/5d820246-c07d-4e85-b9ef-4c14ceee8161" width="80"/><p align="center">
 
  
  
