@@ -6,7 +6,7 @@
 
  
  
- <p align="center"> $${\color{#710a3f}salt / \color{#f7ce9b}kuneho}$$
+ <p align="center"> $${\color{#710a3f}salt / \color{#f7ce9b}kuneho / \color{#0e000a}pire}$$
                 
  
  
