@@ -11,7 +11,7 @@
  
  
 
-$${\color{#710a3f}⭑}$$               
+$${\color{#f7ce9b}⭑}$$               
 
 
  
@@ -25,7 +25,7 @@ $${\color{#710a3f}⭑}$$
 
 $${\color{#710a3f}"You afra \color{#f7ce9b}id of t \color{#31041d} he dark?"}$$
 
-$${\color{#710a3f}⭑}$$
+$${\color{#31041d}⭑}$$
 
 <p align="center"><img src="https://github.com/user-attachments/assets/f930487d-6f7b-4267-b55f-0d6ffa2c71e3" width="900"/><p align="center"> 
 
