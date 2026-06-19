@@ -6,7 +6,7 @@
 
  
  
- <p align="center"><sup> <ins>︵　salt / pire / kuneho</ins> </sup>
+ <p align="center"> $${\color{#710a3f}salt / \color{#f7ce9b}kuneho}$$
                 
  
  
