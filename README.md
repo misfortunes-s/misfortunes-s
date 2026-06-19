@@ -1,4 +1,4 @@
-<p align="center"><img src="https://github.com/user-attachments/assets/1eb91f76-08df-4343-8235-7feef4d8bcf8" width="500"/><p align="center">
+<p align="center"><img src="https://github.com/user-attachments/assets/1eb91f76-08df-4343-8235-7feef4d8bcf8" width="900"/><p align="center">
 
 ㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=misfortunes-s&label=Simon+Riley&color=710a3f)
 
