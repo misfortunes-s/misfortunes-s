@@ -19,6 +19,7 @@
   <a href="https://3ugene0ttinger.straw.page">strawpage</a>  $${\color{#710a3f}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#f7ce9b}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#31041d}⭑}$$ <a href="https://pronouns.cc/@misfortunes-s">prns</a>
 </p>
 
+⭑
 
 $${\color{#710a3f}"You afra \color{#f7ce9b}id of t \color{#31041d} he dark?"}$$
 
