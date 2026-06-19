@@ -19,7 +19,7 @@
   <a href="https://3ugene0ttinger.straw.page">strawpage</a>  $${\color{#710a3f}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#f7ce9b}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#0e000a}⭑}$$ <a href="https://pronouns.cc/@misfortunes-s">prns</a>
 </p>
 
-
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=First+line+of+text;Second+line+of+text)](https://git.io/typing-svg)
 
 <p align="center"><img src="https://github.com/user-attachments/assets/f930487d-6f7b-4267-b55f-0d6ffa2c71e3" width="900"/><p align="center"> 
 
