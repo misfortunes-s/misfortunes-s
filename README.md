@@ -16,7 +16,7 @@
 
  
 <p align="center">
-  <a href="https://3ugene0ttinger.straw.page">strawpage</a>  ⋆  <a href="https://rentry.co/saltsriley">rentry</a> ⑅ <a href="https://s4lt.atabook.org/">ata</a> ⭑ <a href="https://pronouns.cc/@misfortunes-s">prns</a>
+  <a href="https://3ugene0ttinger.straw.page">strawpage</a>  $${\color{#710a3f}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#f7ce9b}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#0e000a}⭑}$$ <a href="https://pronouns.cc/@misfortunes-s">prns</a>
 </p>
 
 
