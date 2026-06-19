@@ -9,9 +9,8 @@
  <p align="center"> $${\color{#710a3f}salt / \color{#f7ce9b}kuneho / \color{#31041d}pire}$$
                 
  
- 
-<p align=center
 
+ 
  $${\color{#f7ce9b}⭑}$$               
 
 
