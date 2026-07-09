@@ -1,36 +1,36 @@
-<p align="center"><img src="https://github.com/user-attachments/assets/bbf4d42a-7858-449c-82c3-888275bd82d9" width="900"/><p align="center">
+<p align="center"><img src="https://github.com/user-attachments/assets/ab0b4e89-ff1e-41c3-83d3-c4ab046415a3" width="900"/><p align="center">
 
- ㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍󠀠ㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=misfortunes-s&label=Simon+Riley&color=710a3f)
-<p align="center"><img src="https://github.com/user-attachments/assets/7650ec21-6793-42e7-93b2-6ed2f20a31b4" width="750"/><p align="center">
+ ㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍󠀠ㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=misfortunes-s&label=Simon+Riley&color=7fb857)
+<p align="center"><img src="https://github.com/user-attachments/assets/a2545810-ad3a-45db-9132-bde71347e081" width="750"/><p align="center">
 
- <img src="https://github.com/user-attachments/assets/5d820246-c07d-4e85-b9ef-4c14ceee8161" width="100"/>
-
- 
-$${\color{#710a3f}⭑}$$
+ <img src="https://github.com/user-attachments/assets/a0004291-f1d8-40f2-b102-6044011f5a15" width="100"/>
 
  
- <p align="center"> $${\color{#710a3f}salt / \color{#f7ce9b}kuneho / \color{#31041d}pire}$$
+$${\color{#f9d393}⭑}$$
+
+ 
+ <p align="center"> $${\color{#7fb857}salt / \color{#4f3011}kuneho / \color{#f9d393}pire}$$
                 
  
 
  
- $${\color{#f7ce9b}⭑}$$               
+ $${\color{#f9d393}⭑}$$               
 
 
  
 <p align="center">
-  <a href="https://saltsriley.straw.page">strawpage</a>  $${\color{#710a3f}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#f7ce9b}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#31041d}⭑}$$ <a href="https://pronouns.cc/@saltsriley">prns</a>  $${\color{#710a3f}⭑}$$  <a href="https://github.com/title-town">titletown</a>
+  <a href="https://saltsriley.straw.page">strawpage</a>  $${\color{#7fb857}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#4f3011}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#f9d393}⭑}$$ <a href="https://pronouns.cc/@saltsriley">prns</a>  $${\color{#7fb857}⭑}$$  <a href="https://github.com/title-town">titletown</a>
 </p>
 
 
-$${\color{#710a3f}⭑}$$
+$${\color{#7fb857}⭑}$$
 
 
-$${\color{#710a3f}"You \space afra \color{#f7ce9b}id \space of \space t \color{#31041d} he \space dark?"}$$
+$${\color{#7fb857}"You \space afra \color{#4f3011}id \space of \space t \color{#f9d393} he \space dark?"}$$
 
-$${\color{#31041d}⭑}$$
+$${\color{#f9d393}⭑}$$
 
-<p align="center"><img src="https://github.com/user-attachments/assets/f930487d-6f7b-4267-b55f-0d6ffa2c71e3" width="900"/><p align="center"> 
+<p align="center"><img src="https://github.com/user-attachments/assets/bfc282f4-8908-4b1f-993d-1a896aa5f3c6" width="900"/><p align="center"> 
 
 
 
