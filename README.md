@@ -19,7 +19,7 @@ $${\color{#ADD1AF}⭑}$$
 
  
 <p align="center">
-  <a href="https://saltsriley.straw.page">strawpage</a>  $${\color{#ADD1AF}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#6D799A}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#ADD1AF}⭑}$$ <a href="https://pronouns.cc/@saltsriley">prns</a>  $${\color{#6D799A}⭑}$$  <a href="https://github.com/title-town">titletown</a> $${\color{#BF909D}⭑}$$ <a href="https://guns.lol/saltriley">guns.lol</a>
+  <a href="https://saltsriley.straw.page">strawpage</a>  $${\color{#ADD1AF}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#6D799A}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#ADD1AF}⭑}$$ <a href="https://pronouns.cc/@saltsriley">prns</a>  $${\color{#6D799A}⭑}$$ <a href="https://guns.lol/saltriley">guns.lol</a>
 </p>
 
 
