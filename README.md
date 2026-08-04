@@ -22,7 +22,7 @@ $${\color{#ADD1AF}⭑}$$
   <a href="https://saltsriley.straw.page">strawpage</a>  $${\color{#ADD1AF}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#6D799A}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#ADD1AF}⭑}$$ <a href="https://pronouns.cc/@saltsriley">prns</a>  $${\color{#6D799A}⭑}$$ <a href="https://guns.lol/saltriley">guns.lol</a>
 </p>
 
-$${\color{#ADD1AF}@ponychievements @pt-fashion @pt-walk-of-fame @title-town @pt-awards @pt-hall-of-media @pt-loveforfictional \space guys \space im \space lazy}$$
+$${\color{#ADD1AF}@ponychievements @pt-fashion @pt-walk-of-fame @title-town @pt-awards @pt-hall-of-media @pt-loveforfictional}$$
 
 $${\color{#ADD1AF}⭑}$$
 
