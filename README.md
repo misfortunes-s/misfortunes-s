@@ -31,6 +31,8 @@ $${\color{#ADD1AF}"You \space afra \color{#BF909D}id \space of \space t \color{#
 
 $${\color{#BF909D}⭑}$$
 
+<img width="1018" height="192" alt="image" src="https://github.com/user-attachments/assets/813eda01-a00a-4dd7-9d55-992b862113f1" />
+
 <p align="center"><img src="https://github.com/user-attachments/assets/b827db98-9e37-49b2-9c48-31c145653e6d" width="900"/><p align="center"> 
 
 
