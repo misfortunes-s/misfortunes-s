@@ -1,15 +1,15 @@
-<p align="center"><img src="https://github.com/user-attachments/assets/f48ebe6c-25bd-4232-ae6f-3ff8db692bc3" width="900"/><p align="center">
+<p align="center"><img src="https://file.garden/aPDMIzdiPkDf-hFQ/Untitled188_20260807094054.png" width="900"/><p align="center">
 
- ㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍󠀠ㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=misfortunes-s&label=Simon+Riley&color=ADD1AF)
-<p align="center"><img src="https://github.com/user-attachments/assets/ab3e291b-13f7-42ac-b3da-631c8095f09a" width="750"/><p align="center">
+ ㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍󠀠ㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=misfortunes-s&label=Simon+Riley&color=aed0af)
+<p align="center"><img src="https://github.com/user-attachments/assets/5aa167a8-7032-4383-9160-7f2a85acbd18" width="750"/><p align="center">
 
- <img src="https://github.com/user-attachments/assets/2e54eee5-990c-4a4f-8ae7-46d65a208f98" width="100"/>
-
- 
-$${\color{#ADD1AF}⭑}$$
+ <img src="https://github.com/user-attachments/assets/5f261d1f-ebcf-4649-b7b0-c2ea1a1b1dd7" width="200"/>
 
  
- <p align="center"> $${\color{#ADD1AF}salt / \color{#BF909D}kuneho / \color{#6D799A}pire}$$
+$${\color{#c6c480}⭑}$$
+
+ 
+ <p align="center"> $${\color{#6f462f}salt / \color{#c6c480}kuneho / \color{#aed0af}pire}$$
                 
  
 
@@ -19,17 +19,17 @@ $${\color{#ADD1AF}⭑}$$
 
  
 <p align="center">
-  <a href="https://saltsriley.straw.page">strawpage</a>  $${\color{#ADD1AF}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#6D799A}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#ADD1AF}⭑}$$ <a href="https://pronouns.cc/@saltsriley">prns</a>  $${\color{#6D799A}⭑}$$ <a href="https://guns.lol/saltriley">guns.lol</a>
+[![strawpage](https://file.garden/aPDMIzdiPkDf-hFQ/SR_6__fliter--warm-sea__channel--red__mode--normal.png)](https://saltsriley.straw.page/) $${\color{#ADD1AF}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#c6c480}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#aed0af}⭑}$$ <a href="https://pronouns.cc/@saltsriley">prns</a>  $${\color{#c6c480}⭑}$$ <a href="https://guns.lol/saltriley">guns.lol</a>
 </p>
 
 $${\color{#ADD1AF}@ponychievements @pt-fashion @pt-walk-of-fame @title-town @pt-awards @pt-hall-of-media @pt-friendships @pt-loveforfictional @pt-nominations @couple-town}$$
 
-$${\color{#ADD1AF}⭑}$$
+$${\color{#c6c480}⭑}$$
 
 
-$${\color{#ADD1AF}"You \space afra \color{#BF909D}id \space of \space t \color{#6D799A} he \space dark?"}$$
+$${\color{#6f462f}"You \space afra \color{#c6c480}id \space of \space t \color{#aed0af} he \space dark?"}$$
 
-$${\color{#BF909D}⭑}$$
+$${\color{#aed0af}⭑}$$
 
 <p align="center"><img width="900" height="160" alt="image" src="https://github.com/user-attachments/assets/9e76c366-d2b7-4754-9bcd-a22180f5e57d" />
 
