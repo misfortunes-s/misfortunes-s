@@ -19,7 +19,7 @@ $${\color{#c6c480}⭑}$$
 
  
 <p align="center">
- $${\color{#ADD1AF}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#c6c480}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#aed0af}⭑}$$ <a href="https://pronouns.cc/@saltsriley">prns</a>  $${\color{#c6c480}⭑}$$ <a href="https://guns.lol/saltriley">guns.lol</a>
+<a href="https://saltsriley.straw.page/">strawpage</a> $${\color{#ADD1AF}⭑}$$  <a href="https://rentry.co/saltsriley">rentry</a> $${\color{#c6c480}⑅}$$ <a href="https://s4lt.atabook.org/">ata</a> $${\color{#aed0af}⭑}$$ <a href="https://pronouns.cc/@saltsriley">prns</a>  $${\color{#c6c480}⭑}$$ <a href="https://guns.lol/saltriley">guns.lol</a>
 </p>
 
 $${\color{#ADD1AF}@ponychievements @pt-fashion @pt-walk-of-fame @title-town @pt-awards @pt-hall-of-media @pt-friendships @pt-loveforfictional @pt-nominations @couple-town}$$
@@ -31,8 +31,7 @@ $${\color{#6f462f}"You \space afra \color{#c6c480}id \space of \space t \color{#
 
 $${\color{#aed0af}⭑}$$
 
-<p align="center"><img width="900" height="160" alt="image" src="https://github.com/user-attachments/assets/9e76c366-d2b7-4754-9bcd-a22180f5e57d" />
-
+<p align="center">$${\color{#6f462f}TYSMM \space TO}$$ <a href="https://github.com/sir-chloe">sir-chloe</a> $${\color{#aed0af}FOR \space GRAPHICS \space ILYSMM \space /p}$$</p>
 
 <p align="center"><img src="https://file.garden/aPDMIzdiPkDf-hFQ/Untitled188_20260807094106.png" width="900"/><p align="center"> 
 
