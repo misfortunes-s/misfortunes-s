@@ -1,6 +1,6 @@
 <p align="center"><img src="https://file.garden/aPDMIzdiPkDf-hFQ/Untitled188_20260807094054.png" width="900"/><p align="center">
 
- ㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍󠀠ㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=misfortunes-s&label=Simon+Riley&color=aed0af)
+‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ‍ ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=misfortunes-s&style=classic&color=aed0af&labelColor=aed0af&label=simonriley&abbreviated=true)
 <p align="center"><img src="https://github.com/user-attachments/assets/5aa167a8-7032-4383-9160-7f2a85acbd18" width="750"/><p align="center">
 
  <img src="https://github.com/user-attachments/assets/5f261d1f-ebcf-4649-b7b0-c2ea1a1b1dd7" width="200"/>
